@@ -6,4 +6,4 @@ There’s something hauntingly peaceful about *WALL·E*. It’s not just a love 
 
 WALL·E’s fascination with the smallest human things — a lighter, a plant, a song — hits differently. It’s like watching innocence rediscover the world. Maybe that’s why I like it so much — it feels both lonely and alive at the same time.
 
-![WALL·E](https://upload.wikimedia.org/wikipedia/en/c/c2/WALL-Eposter.jpg)
+
